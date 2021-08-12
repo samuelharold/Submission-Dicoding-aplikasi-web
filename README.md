@@ -5,3 +5,4 @@ jika anda berminat untuk menjadi volunter silakan ikuti format sebagai berikut:
 
 
 Berikut daftar Volunter yang diterima:
+**\* wiradhika, [myselfBook.co.tec](github.com/haroldwiradhika)** 
